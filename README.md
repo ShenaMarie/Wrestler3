@@ -1,4 +1,4 @@
 # Wrestler3
 PAPA's Battle
 
-Kill yourself.. hahaha!!
+WEEE ! This is really a battle ! :D
